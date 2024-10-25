@@ -1,2 +1,2 @@
-# LusLusLus422-
+# LusLusLus422
 # Hello World 🚀
