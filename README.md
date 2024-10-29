@@ -1,3 +1,4 @@
-# LusLusLus Greetings & Hello World 🚀
+# LusLusLus 
+## Greetings & Hello World 🚀
 
 
